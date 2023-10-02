@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/MayurArun](https://github.com/MayurArun)
 
-- 📫 How to reach me **mayurarun2001@gmail.com**
+- 📫 How to reach me **mayurarun1310@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
